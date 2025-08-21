@@ -1,4 +1,4 @@
-Hi **Marinel**,
+Hi **Mae**,
 
 Thank you for reaching out and letting us know about your situation. I’m sorry to hear about your injury, and I hope you are recovering well.
 
